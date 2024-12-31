@@ -8,7 +8,7 @@ As the New Year begins, Anupama finds herself navigating challenging situations,
 
 ### Key Highlights:
 1. **Anupama’s Emotional Journey**: 
-   In this episode, Anupama senses Anuj’s presence when she comes across something familiar. This moment may signify lingering connections and unresolved emotions, continuing the tension between the two characters[Anupama 1st January 2025 Written Update](https://skikoonews.blogspot.com/2024/12/anupama-1st-january-2025-written-update.html).
+   In this episode, Anupama senses Anuj’s presence when she comes across something familiar. This moment may signify lingering connections and unresolved emotions, continuing the tension between the two characters [Anupama 1st January 2025 Written Update](https://skikoonews.blogspot.com/2024/12/anupama-1st-january-2025-written-update.html).
 
 2. **Financial Challenges**: 
    Rajpal informs Anupama about the need to pay the property tax for Asha Bhavan. This situation adds another layer of complexity to her struggles, highlighting her resilience and determination.
